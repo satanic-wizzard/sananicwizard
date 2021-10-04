@@ -1,1 +1,1 @@
-# sananicwizard
+# satanicwizard
